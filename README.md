@@ -1,2 +1,0 @@
-# wallpapers
-My favorite wallpapers
